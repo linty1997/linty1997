@@ -8,6 +8,8 @@
   
 
 - 🌱 I love my life.
+
+Mail: linty1997@pm.me
   
 
 <br/>  
